@@ -1,0 +1,13 @@
+# perbaikan
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm1.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm2.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm3.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm4.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm5.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm6.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm7.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm8.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm9.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm10.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm11.png)
+![alt text](https://github.com/kamila05/perbaikan/blob/master/sm12.png)
